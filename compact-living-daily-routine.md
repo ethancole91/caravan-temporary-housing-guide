@@ -1,4 +1,5 @@
-# Compact Living Routine Guide
+# Compact Living Workflow Guide: Building Better Daily Systems in Smaller Spaces
+<img width="1536" height="1024" alt="compact-living-routine-guide-cover" src="https://github.com/user-attachments/assets/6ed44df5-ad5b-4cca-a2b2-e5fb0978b609" />
 
 ## How Small Daily Systems Shape Long-Term Caravan Living
 
